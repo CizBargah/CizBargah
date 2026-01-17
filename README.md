@@ -1,6 +1,6 @@
 # Who am I?
 I’m @CizBargah.  
-I'm a average depressed student majoring in mathematics.  
+I was a average depressed ex-student majoring in mathematics. 
 Currently, I'm studying deeper about Mathematics, Physics, Computer Science, and others to add to my depression.  
 I am a nerd and a geek (in case its not obvious enough).  
 
